@@ -1,1 +1,1 @@
-# Widuri Website(on progress) - Agus Rosi
+# Widuri Website(on progress) - AG
